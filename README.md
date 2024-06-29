@@ -6,7 +6,7 @@
 
 💥 Saved the day with code, over and over again.
 
-❤️ Fell in love with development, saved the city, and then did it all over again.
+❤️ Fell in love with development, saved the project, and then did it all over again.
 
 🌍 Building, innovating, and making a difference with every line of code.
 
