@@ -2,7 +2,7 @@
  
 ![7cef25d720ec483f69e1203171e86c91](https://github.com/jhankda/jhankda/assets/133991814/85971390-1960-40bb-b039-029abcb99a2a)
 
-🎮 Been coding backend games and crafting web solutions for years now.
+🎮 Been coding backend games and crafting web solutions for a time now.
 
 💥 Saved the day with code, over and over again.
 
